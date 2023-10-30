@@ -2,7 +2,7 @@
 Just another repository
 
 
-I want to work for SpaceX...and so do you probably.
+I want to work in cybersecurity...hope you do too. 
 
 Beginning my journey here.
 
